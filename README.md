@@ -3,11 +3,11 @@ S C R Y B E O F T E C H N O L O G Y
 <p align="center">
 <h4 align="center"
  
-![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+profile+views+++&color=ad2b2b&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=ScrybeOfTechnology&label=𐙚+profile+views+++&color=ad2b2b&abbreviated=true)
 
  </h4>
 <p align="center">
- <img width="900" src="https://64.media.tumblr.com/94fa4ec895fc13c24a3d121c865fd6d2/a5bea54f62ae42ef-e4/s2048x3072/f47d90565fc692f8416c4f3052c00316c48eec4f.pnj"
+ <img width="900" src="https://i.imgur.com/D6MtqPD.jpeg"
    </p>
     <p align="center"> 
   <italic>${\color{#0FFFFF}➤}$⠀art by death-by-killer-screen
