@@ -143,3 +143,5 @@ S C R Y B E O F T E C H N O L O G Y
 <p align="center">
  <img width="300" src="https://i.imgur.com/rApARmq.jpeg"
    </p>
+
+> add me on fortnite heh StonedandSchizo
