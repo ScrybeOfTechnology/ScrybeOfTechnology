@@ -98,7 +98,7 @@ S C R Y B E O F T E C H N O L O G Y
 </p>
 <img width="80" src="https://64.media.tumblr.com/3499fe90db8dae1d691f19d9d3d1891c/2692cb8041da4edc-6d/s100x200/18ce46fd8a84a1024fe298280b469a7fc73d3d3c.pnj"
 </p>
-  <img width="80" src="https://64.media.tumblr.com/48eddd33be41c7a74fb77f3fbce6704e/e16d9c3fd8438e13-67/s100x200/fb60e50a02384caf95f1a253edc57f7ccf4ade27.pnj"
+  <img width="80" src="https://64.media.tumblr.com/5d6e5db1972d10fb7d4707c72ead9dd0/e5e999bb453b6265-1e/s100x200/a36e9490870cc4b6107214ab83a822d376f4ef83.gifv"
 </p>
  <img width="80" src="https://64.media.tumblr.com/f62b5d7bfc3c3e4bf4bb8c12f57f7813/0b35bb9647650202-53/s100x200/f9e22d03db9a8a260adafd5b34e4352c48dc0ca8.gifv"
 </p>
