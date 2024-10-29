@@ -52,7 +52,7 @@ S C R Y B E O F T E C H N O L O G Y
 </p>
  <img width="80" src="https://64.media.tumblr.com/96e69a036b4c2e84a464fe9ad41ae495/6f072ea04e7b6c72-db/s100x200/2fc6d547fa9d516036636e8c3a2b57b88f892f0e.gifv"
 </p>
- <img width="80" src="https://64.media.tumblr.com/760e036ecebe486b7a0bee9560b8bc17/7c3dd077ed76e2f9-77/s100x200/cee116d8432d72658408f9a6f7c00d33549498cc.gifv"
+ <img width="80" src="https://64.media.tumblr.com/5df03ec1f72b48daa0d331919d2b2247/bfbdc7f9f62dec41-48/s100x200/86a2356c390842221f42c88f73a86e02884f1b8a.gifv"
 </p>
  <img width="80" src="https://64.media.tumblr.com/9c26de2d3a9191d3261b43d719a1b829/090d4fdcf0be8032-5d/s250x400/6389733615587da4461393c0410651bc4547a275.gifv"
 </p>
