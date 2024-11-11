@@ -145,4 +145,6 @@ S C R Y B E O F T E C H N O L O G Y
    </p>
 
 > add me on fortnite heh StonedandSchizo
+
+
 > also if i see youve interacted with bjornthesomberlain i will avoid u like the plague sry i dont like freaks
