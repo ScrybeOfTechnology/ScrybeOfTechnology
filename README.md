@@ -25,7 +25,13 @@ S C R Y B E O F T E C H N O L O G Y
  <br> <sup>schizo & adhd</sup> <img width="25" src='https://i.imgur.com/Qzuyu3w.png'> <sup>cool guy disease </sup>
  <br><sub> <a href="https://arab.org/click-to-help/palestine/"> Do your daily clicks!  </a></sub>
 </p>
-
+  </p> 
+   <p align="center"
+      <br> <sup> Call me Seraph or Sean </sup>
+    <p align="center"
+      <br> <sup> Im more often stoned on this game sorry if you dont fw that </sup>
+        <p align="center"
+      <br> <sup> I dont really have any boundries idk just dont like try to trigger my schizo thats toddler behavior </sup>
   </p> 
    <p align="center"
        <br><sub> <a href="https://www.patreon.com/seraphimblade/about"> <sup>PT</sup>  </a></sub>  <img width="25" src='https://i.imgur.com/Qzuyu3w.png'>  <sub> <a href="https://seraphimblade.atabook.org"> <sup>ATA</sup>  </a></sub>
