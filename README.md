@@ -150,7 +150,3 @@ S C R Y B E O F T E C H N O L O G Y
  <img width="300" src="https://i.imgur.com/rApARmq.jpeg"
    </p>
 
-> add me on fortnite heh jonesynibbler
-
-
-> also if i see youve interacted with bjornthesomberlain i will avoid u like the plague sry i dont like freaks
